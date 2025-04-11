@@ -1,1 +1,1 @@
-# -
+# Generates a 3D Traditional Chinese symbol "一" in regular script, made of smooth jade with a rainbow sheen, arranged on a lavender background. According to the correct meaning of the character "一", the correct stroke order, stroke position, correct radical structure, correct stroke thickness, length, size, angle, weight and proportion, this character is carved out.
